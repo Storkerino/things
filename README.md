@@ -1,1 +1,1 @@
-# things
+learning and training - mostly
